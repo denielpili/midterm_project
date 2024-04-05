@@ -1,7 +1,5 @@
 # Midterm Project
-[Rosalie Nacario](https://https://www.facebook.com/profile.php?id=100072288485147) and
-[Nathaniel Tino](https://https://www.facebook.com/NathanielTino?mibextid=ZbWKwL)
-
+[Deniel Genesis Pili](https://www.facebook.com/janiel.infante/)
 
 
 # **Information Gathering Tools**
